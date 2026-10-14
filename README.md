@@ -25,5 +25,12 @@ A user-friendly project designed to help students and working professionals mana
 ### 💌 Let's Connect
 
 * 💻 [GitHub](https://github.com/FathimaZohra-hue)
+* [Linkedin](https://www.linkedin.com/in/fathima-zohra-60684a33a)
+
+
+
+
+
+
  *Learning, building, creating, and growing — one step at a time!* 
 
